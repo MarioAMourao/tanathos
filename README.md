@@ -1,0 +1,2 @@
+# tanathos
+Geral de ideias
